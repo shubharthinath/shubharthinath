@@ -1,5 +1,5 @@
-<h1 align="center">Hi, I'm Shubharthi.</h1>
-<h3 align="center">A passionate programmer from India, interested in C++, Python, AI and Machine Learning.</h3>
+<h1 align="center">Hi👋, I'm Shubharthi.</h1>
+<h3 align="center">A passionate programmer from India, skilled in C++, Python, Javascript and exploring AI and Machine Learning.</h3>
 
 - 📫 How to reach me **shubharthi24nath@gmail.com**
 
