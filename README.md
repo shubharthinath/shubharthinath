@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **shubharthi24nath@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/1/folders/1VmHpRdLjXA1irThHHgBvn_nR2eUhCxae](https://drive.google.com/drive/u/1/folders/1VmHpRdLjXA1irThHHgBvn_nR2eUhCxae)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Lh52srOJEcmP46ksbms4Fb35Vx2e3XPZ/view?usp=sharing](https://drive.google.com/file/d/1Lh52srOJEcmP46ksbms4Fb35Vx2e3XPZ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
